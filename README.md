@@ -1,1 +1,11 @@
-## <img src="https://user-images.githubusercontent.com/1303154/88677602-1635ba80-d120-11ea-84d8-d263ba5fc3c0.gif" width="28px" height="28px" alt="hi"> Hi there! 
+# Stop! 🖐️ 
+### you *violated* 😳 the **law** 👮  
+##### pay the court a ***fine*** 💲or `serve your sentence` 😤 
+###### your stolen goods 💎 are now ***`forfeit`*** 😫
+
+<details>
+<summary><a href="https://github.com/neugomonov">Go to jail 👮</a>	|| <a href="https://github.com/neugomonov/restik">Resist arrest 👀</a> ||	<a href="https://github.com/neugomonov/land-map">< Pay gold 💰</a>	  
+</summary>
+
+## THEN PAY💲💲WITH YOUR BLOOD 💦💦💦😫
+</details>
